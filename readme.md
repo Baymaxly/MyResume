@@ -1,7 +1,7 @@
 
 ## 整体效果展示
 
-![](https://graph-1301143676.cos.ap-chengdu.myqcloud.com/resume/LuYiresume.png)
+![](https://graph-1301143676.cos.ap-chengdu.myqcloud.com/resume/LUYI.png)
 
 ## 教育背景模板
 
